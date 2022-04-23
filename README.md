@@ -1,7 +1,7 @@
 Sara Anne Green 
 Address (home): 47 Gerrard Street 
 Manchester, M20 4LZ 
-Telephone: 0121 423170 
+Telephone:
 Email: sara.green@gmail.com	A well-organized and outgoing Business Economics student graduating in June 2007 with good communication and analytical skills, looking to develop a career as an economist within an international business environment. Fluent Spanish speaker experienced in the use of spreadsheets, databases, and similar business software.
 Education and qualifications:	September 2004 - June 2007 
 BA (Hons) in Business Economics 
